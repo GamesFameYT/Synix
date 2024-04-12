@@ -1,2 +1,3 @@
 # Synix
-i forgot
+
+hehe secret script with secret stuff
